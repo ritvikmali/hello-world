@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ritvikmali
+- 👀 I’m interested in Cyber Security
+- 🌱 I’m currently learning Computer Science
+- 📫 How to reach me Mail - ritvikmali2@gmail.com
